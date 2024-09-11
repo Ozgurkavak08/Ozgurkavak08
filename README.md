@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ozgurkavak08 I am a high school student
+- 👀 I’m interested in computers and technology.
+- 🌱 I’m currently learning phyton
+- 💞️ I’m looking to collaborate on university
+- 📫 How to reach me "ozgurkavak2008@gmail.com"
+- 😄 Pronouns: he/him
